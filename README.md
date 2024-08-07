@@ -1,0 +1,5 @@
+- 👋 Привет меня зовут Маша (LET'SBE)
+- 💰 Донат: https://www.donationalerts.com/r/let_sbe
+- YouTube: https://youtube.com/@mashaxcx?si=QWcM5UBC29kllu-3
+- TikTok: https://www.tiktok.com/@let.sbe
+- Чат в Телеграмме: https://t.me/+DC-ye4UxmvY1YmFi
